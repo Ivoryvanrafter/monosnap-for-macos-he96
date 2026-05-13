@@ -1,4 +1,4 @@
-
+automatic Automation for Monosnap for macOS - dark-mode and junk-removal is the best Monosnap for macOS automation, featuring dark-mode and junk-removal. Safe, efficient, and
 
 
 
